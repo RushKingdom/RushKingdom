@@ -1,3 +1,4 @@
 # 👋 Hello, I am Silas ツ and I am Java Developer! 💻
 
-![image](https://github.com/RushKingdom/RushKingdom/assets/140880750/5370e524-f762-4ce1-a569-db2fd4b031d3)
+![image](https://github.com/RushKingdom/RushKingdom/assets/140880750/16920552-826c-44e7-a78c-5e3270291c22)
+
